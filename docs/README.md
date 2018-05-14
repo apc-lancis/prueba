@@ -1,3 +1,6 @@
 # Aguas con el Perro
 
-etc.
+Rápidas manos frías
+retiran una a una
+las vendas 
+de la sombra
